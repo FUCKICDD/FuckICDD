@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+这是ICDD实验室的记录~
+曾经那个意气风发的青年，如今这个满嘴脏话的电池，🔋
